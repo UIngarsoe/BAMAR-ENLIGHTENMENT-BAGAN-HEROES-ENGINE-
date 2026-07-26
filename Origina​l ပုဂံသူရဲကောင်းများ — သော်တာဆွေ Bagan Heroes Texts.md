@@ -1,5 +1,5 @@
 ​ပုဂံသူရဲကောင်းများ — သော်တာဆွေ
-Chapter 1 to 4 original texts from the book.
+Chapter 1 original texts from the book.
 
 Page 1
 မြန်မာသက္ကရာဇ် ၄၀၆ (ခရစ် ၁၀၄၄)
